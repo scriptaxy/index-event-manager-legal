@@ -64,4 +64,4 @@ bot after a change, you accept the new terms.
 ## 8. Contact
 
 Questions, reports or deletion requests: ask in discord.gg/thehangout or contact
-**.nko_** on Discord.
+**[.nko_ on Discord](https://discord.com/users/1362812211151765555)**.

@@ -46,4 +46,4 @@ Index rolls counted, roll outside the event channel.
 
 ## Contact
 
-Questions or deletion requests: **.nko_** on Discord, or in discord.gg/thehangout.
+Questions or deletion requests: **[.nko_ on Discord](https://discord.com/users/1362812211151765555)**, or in discord.gg/thehangout.
